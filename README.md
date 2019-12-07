@@ -1,1 +1,1 @@
-personal slides.
+zd personal slides.
